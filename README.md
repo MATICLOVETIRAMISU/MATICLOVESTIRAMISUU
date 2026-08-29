@@ -4,3 +4,4 @@ I enjoy c+h freely! You will pretty much see me as STAT or senpai on pt! Please 
 
 Pls dni if you disrespect my boundaries ! remember .. IM A STAT KIN NOT YUME well.. Kinda..
 
+https://tenor.com/nhw0ylo43t0.gif
