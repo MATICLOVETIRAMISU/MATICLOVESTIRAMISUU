@@ -12,3 +12,4 @@ And my strawpage is a wip so you dont have to go on it!
 ♫彡｡.:・¤ﾟ♫彡｡.:・¤ﾟ♫彡｡.:・¤ﾟ♫彡｡.:・*ﾟ
 Pls dni if you disrespect my boundaries ! remember .. IM A STAT KIN NOT YUME well.. Kinda..
 ░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░                   ░░░░░░░░░░░░░░░
+![image alt](https://github.com/MATICLOVETIRAMISU/MATICLOVESTIRAMISUU/blob/6c4369a63d379a99dfa62d5064fe9b3ec362faed/Untitled448_20260817001228.png)
